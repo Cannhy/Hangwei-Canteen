@@ -1,1 +1,1 @@
-# Hangwei-Canteen
+# Hangwei Canteen
